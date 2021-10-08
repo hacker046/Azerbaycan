@@ -1,0 +1,2 @@
+# Azerbaycan
+Fuck you armenia
